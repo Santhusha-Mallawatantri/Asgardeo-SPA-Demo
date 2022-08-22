@@ -18,7 +18,7 @@ And you're all set to go. If you liked the work, do consider dropping a star int
     <img width="33%" src="https://user-images.githubusercontent.com/83592694/185840554-d8d48e66-277f-40d5-9700-4c3efdf65e59.gif">
 </p>
 
-If you wanna see some cool UX/UI work consider dropping into my <a href="https://www.behance.net/santhusha_m" target="_blank">Behance</a> Portfolio or hit my up for any inquiries on <a href="https://lk.linkedin.com/in/santhusha-mallawatantri" target="_blank">LinkedIn</a>. And if you really feel jazzing then send a tween my way on <a href="https://twitter.com/mallawatantri" target="_blank">Twitter</a>
+If you wanna see some cool UX/UI work consider dropping into my <a href="https://www.behance.net/santhusha_m" target="_blank">Behance</a> Portfolio or hit my up for any inquiries on <a href="https://lk.linkedin.com/in/santhusha-mallawatantri" target="_blank">LinkedIn</a>. And if you really feel jazzing then send a tweet my way on <a href="https://twitter.com/mallawatantri" target="_blank">Twitter</a>
 
 As always keep shining and stay tuned for lots more exciting stuff coming your way. Keep grinding and stay curious and dare to do something new everyday or learn. Look out for one another and keep rocking.
 
